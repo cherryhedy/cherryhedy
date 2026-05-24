@@ -7,7 +7,9 @@
 > 𐙚        _**hedy • w2i • 17 y.o
 >       I don't mind if you sit next to me.**_
 >                     plsss cuddle me !! 
-> • please do not copy my ponies. 
+> • please do not copy my ponies.
+> 
+>  — „ . - true WeiWuxian irl
 > 
 > ─── ⋆⋅☆⋅⋆ ──
 
@@ -19,15 +21,15 @@
 >            GI, HSR, danmei novels, TBHK ….
 
 >    𐙚    my favorite pairings:
->         tartaglia/scara 
->         tartaglia/kaeya
->         venti/dalia
->         kokomi/gorou
->         kaveh/haitham
->         dottore/lone
->         dan feng/blade
->         mydei/phainon
->         wangxian_
+>         tartaglia/scara;
+>         tartaglia/kaeya;
+>         venti/dalia;
+>         kokomi/gorou;
+>         kaveh/haitham;
+>         dottore/lone;
+>         dan feng/blade;
+>         mydei/phainon;
+>         wangxian.
 > ─── ⋆⋅☆⋅⋆ ──
 
 <img width="736" height="414" alt="IMG_0847" src="https://github.com/user-attachments/assets/8e7af37e-ccbf-456e-bc98-8aa995348b61" />
