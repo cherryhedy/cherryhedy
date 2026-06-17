@@ -29,7 +29,11 @@
 >         dottore/lone;
 >         dan feng/blade;
 >         mydei/phainon;
->         wangxian.
+>         wangxian;
+>         bakugo/deku;
+>         bakugo/shoto;
+>         bakugo/kirishima;
+> 
 > ─── ⋆⋅☆⋅⋆ ──
 
 <img width="736" height="414" alt="IMG_0847" src="https://github.com/user-attachments/assets/8e7af37e-ccbf-456e-bc98-8aa995348b61" />
